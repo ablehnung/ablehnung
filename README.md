@@ -11,7 +11,7 @@ discord: ablehnung#4579
 ------------------------
 About me: 
 I am ablenung#4579 (former known as technikstreber aka, technik). I want to learn / I am learning c# and am therefore mainly focused on c#.
-At the moment my knoledge is not really very sufficent. I like monkeys and salted potatoe chips. The thing that can get me to rage is a ;
+At the moment my knowledge is not really very sufficent. I like monkeys and salted potatoe chips. The thing that can get me to rage is a ;
 ------------------------
 
 
