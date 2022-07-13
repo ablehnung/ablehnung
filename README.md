@@ -1,3 +1,4 @@
+------------------------
 About my projects
 My projects are most likely set to private, because i am working on them. The credits for some parts are going to 
 too many people. I really cant mention everyone. The only thing i can say is, the construct is always by me. 
@@ -13,7 +14,4 @@ I am ablenung#4579 (former known as technikstreber aka, technik). I want to lear
 At the moment my knoledge is not really very sufficent. I like monkeys and salted potatoe chips. The thing that can get me to rage is a ;
 ------------------------
 
-█▀▀█ █▀▀▄ █░░ █▀▀ █░░█ █▀▀▄ █░░█ █▀▀▄ █▀▀▀ ░█▀█░ █▀▀ ▀▀▀█ ▄▀▀▄ 
-█▄▄█ █▀▀▄ █░░ █▀▀ █▀▀█ █░░█ █░░█ █░░█ █░▀█ █▄▄█▄ ▀▀▄ ░░█░ ▀▄▄█ 
-▀░░▀ ▀▀▀░ ▀▀▀ ▀▀▀ ▀░░▀ ▀░░▀ ░▀▀▀ ▀░░▀ ▀▀▀▀ ░░░█░ ▄▄▀ ░▐▌░ ░▄▄▀ 
 
