@@ -3,9 +3,6 @@ About my projects:
 My projects are most likely set to private, because i am working on them. The credits for some parts are going to 
 too many people. I really cant mention everyone. The only thing i can say is, the construct is always by me. 
 ------------------------
-What am i working on rn: 
-I am currently focusing on the gta rp scene. I am dev at a project that uses AltV. For more info visit https://discord.gg/VChBCbTvxD
-------------------------
 If u want contact me: 
 discord: ablehnung#4579
 ------------------------
