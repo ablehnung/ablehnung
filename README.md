@@ -7,8 +7,9 @@ If u want contact me:
 discord: ablehnung#4579
 ------------------------
 About me: 
-I am ablenung#4579. I want to learn / I am learning C but i am open for everything (if it gets my interest). My plans are also to learn more about hardware.
-At the moment my knowledge is not really very sufficent. I like monkeys and salted potatoe chips.
+I am ablenung#4579. I deal with network technology, cybersecurity and developing.
+I like monkeys and salted potatoe chips. Also i think i can call myself an artist.
+I often rework AI images bc i am not so crative.
 ------------------------
 
 
